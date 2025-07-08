@@ -7,6 +7,7 @@ Hallo I am Kyo !
 This profile is still a wip
 
 Linkies !
+
 [StrawPage](https://pablo4u.straw.page) [Patreon](https://www.patreon.com/c/kyosato/about)
 
 <!--
