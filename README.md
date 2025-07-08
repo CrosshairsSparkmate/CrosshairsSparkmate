@@ -1,4 +1,5 @@
-## Hi there 👋
+![image](https://github.com/user-attachments/assets/901ccd73-d462-4dfd-bac7-9f9a19d11efc)
+
 
 <!--
 **CrosshairsSparkmate/CrosshairsSparkmate** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
