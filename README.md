@@ -1,14 +1,12 @@
+<p align="center">
+  <img src="https://media1.tenor.com/m/pu1jAWi9yW4AAAAC/transformers-bumblebee.gif" />
+</p>
 
-![download (5)](https://github.com/user-attachments/assets/265774c3-6dea-4b40-88e2-8b865ecff5d5)
+<h5 align="center">Hallo I am Kyō !  
+<h6 align="center">This profile is still a wip
 
-
-Hallo I am Kyo !
-
-This profile is still a wip
-
-Linkies !
-
-[StrawPage](https://pablo4u.straw.page) [Patreon](https://www.patreon.com/c/kyosato/about)
+  Linkies !  
+[StrawPage](https://pablo4u.straw.page) | [Patreon](https://www.patreon.com/c/kyosato/about)
 
 <!--
 **CrosshairsSparkmate/CrosshairsSparkmate** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
