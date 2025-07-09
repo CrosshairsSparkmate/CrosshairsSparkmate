@@ -2,7 +2,12 @@
   <img src="https://media1.tenor.com/m/pu1jAWi9yW4AAAAC/transformers-bumblebee.gif" />
 </p>
 
-<h5 align="center">Hallo I am Kyō !  
+<h5 align="center">Hallo I am 𝘒𝘺ō !  
+<h6 align="center">‧˚₊꒷꒦︶︶︶︶︶꒷꒦︶︶︶︶︶꒦꒷‧₊˚⊹
+<h6 align="center">This Github is only connected to some selected ponies ! 
+<h6 align="center">ɪ ʜᴀᴠᴇ ᴀᴅᴅ & ᴏꜱᴅᴅ so be mindful if I am a bit slow at interacting. 
+<h5 align="center">Please ᴅᴏɴ'ᴛ ᴄᴏᴘʏ My Ponies !
+<h6 align="center">. ݁₊ ⊹ . ݁˖ . ݁. ݁₊ ⊹ . ݁˖ . ݁.𖥔 ݁ ˖ ᯓ★
 <h6 align="center">This profile is still a wip
 
   Linkies !  
